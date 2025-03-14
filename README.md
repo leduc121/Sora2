@@ -5,50 +5,68 @@
 # Danh sách giày Nike  
 
 ## 1. Nike Air Force 1  
-- Nike Air Force 1 Low Supreme White  
-- Nike Air Force 1 Low By You  
-- Nike Air Force 1 Low '07 LX  
+- Nike Air Force 1 Low Supreme White - https://product.hstatic.net/200000475003/product/14_f9c617d833834f0494c20eded0e7a149_grande.png  
+- Nike Air Force 1 Low By You - https://static.nike.com/a/images/t_PDP_1280_v1/f_auto,q_auto:eco/20547d52-3e1b-4c3d-b917-f0d7e0eb8bdf/custom-nike-air-force-1-low-by-you-shoes.png  
+- Nike Air Force 1 Low '07 LX - https://sneakerdaily.vn/wp-content/uploads/2024/01/Giay-WMNS-Nike-Air-Force-1-Low-07-LX-Grain-FN7202-224.jpg  
 
 ## 2. Nike Blazer  
-- Nike Blazer Low Jumbo White Black  
-- Nike Blazer Mid '77 Vintage White Black  
+- Nike Blazer Low Jumbo White Black - https://bizweb.dktcdn.net/thumb/1024x1024/100/427/145/products/httpsmoresneakers-comreleasesnike-blazer-low-77-jumbo-white-black-dn2158-101-8.png?v=1677160590347  
+- Nike Blazer Mid '77 Vintage White Black - https://bizweb.dktcdn.net/100/427/393/products/screenshot-2022-12-16-121304-1671167756045.png?v=1671169328410  
 
 ## 3. Nike Dunk  
-- Nike Dunk Low Black White  
-- Nike Wmns Dunk Low Coast  
-- Nike Wmns Dunk Low Disrupt 2 Malachite  
-- Nike Wmns Dunk Low Black Paisley  
+- Nike Dunk Low Black White - https://static.nike.com/a/images/w_1280,q_auto,f_auto/8f34d895-8a53-4df5-a87a-1ce02d1303ec/dunk-low-retro-se-white-and-black-dd3358-300-release-date.jpg  
+- Nike Wmns Dunk Low Coast - https://shopgiayreplica.com/wp-content/uploads/2021/08/Nike-Dunk-Low-Coast.jpg  
+- Nike Dunk Low SE - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/24f34b9a-7337-4f15-b341-123729fffb6c/NIKE+DUNK+LOW+SE+%28GS%29.png  
+- Nike Wmns Dunk Low LX - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/4ae6921f-d44a-4093-b921-410d9cdbc7ec/W+NIKE+DUNK+LOW+LX.png  
 
 ## 4. Nike Air Max  
-- Nike Air Max 1  
-- Nike Air Max 90  
-- Nike Air Max 97  
+- Nike Air Max 1 - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/c1a7db5b-2a7a-4899-901e-f49d886c7051/W+NIKE+AIR+MAX+1.png  
+- Nike Air Max 90 - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/34aab78f-b8a4-49dd-beed-897729f5b0c1/AIR+MAX+90.png  
+- Nike Air Max 97 Futura - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/e5c5f1dc-1167-4152-a2a2-c19235370db4/W+AIR+MAX+97+FUTURA.png  
 
 ## 5. Nike Air Jordan  
-- Nike Air Jordan 3  
-- Nike Air Jordan 11  
+- Nike Air Jordan 1 Mid SE - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/u_126ab356-44d8-4a06-89b4-fcdcc8df0245,c_scale,fl_relative,w_1.0,h_1.0,fl_layer_apply/b6506982-e8c8-4761-a901-da588c1c99df/AIR+JORDAN+1+MID+SE+%28GS%29.png  
+- Nike Air Jordan 9 G - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/u_126ab356-44d8-4a06-89b4-fcdcc8df0245,c_scale,fl_relative,w_1.0,h_1.0,fl_layer_apply/c1e88e75-c863-4043-ac61-f64adece0fea/AIR+JORDAN+9+G.png  
 
 ## 6. Nike React  
-- Nike React  
+- Nike React Phantom Run Flyknit 2 - https://static.nike.com/a/images/c_limit,w_592,f_auto/t_product_v1/4236bee2-d8e8-448d-859b-77a57197eb6a/NIKE+REACT+PHANTOM+RUN+FK+2.png  
 
 
-# Danh Sách Giày Puma
+# Danh sách giày Puma  
 
-- **Puma Cali**
-- **Puma RS-X3**
-- **Puma Suede Classic**
-- **Puma Thunder Spectra**
-- **Puma RS-0 Sound**
-- **Puma Future Rider**
-- **Puma Basket Classic**
-- **Puma Ignite Limitless**
-- **Puma LQD Cell Optic**
-- **Puma Ralph Sampson Lo**
-- **Puma Clyde Hardwood**
-- **Puma Disc Blaze**
-- **Puma UltraRide**
-- **Puma Deviate Nitro**
-- **Puma Fuse**
+## 1. Puma LQD Cell  
+- Puma LQD Cell Optic - https://authentic-shoes.com/wp-content/uploads/2023/04/957742-z_1b9fb20e163f4cd3b51d05e75d46f540.png  
+
+## 2. Puma Cali  
+- Puma Cali - https://bizweb.dktcdn.net/thumb/large/100/378/584/products/z5243345840752-1e4b9c9b389a0823f6901968f329f78f.jpg  
+
+## 3. Puma RS Series  
+- Puma RS-X3 - https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSg8aiHrnjmtETXCyjB4IeBbYBNErkwAF-slw&s  
+- Puma RS-0 Sound - https://www.jordan1.vn/wp-content/uploads/2023/09/0000200589565_01_ek_7eb84e79fb46_0785a5f703cf4944ac6d381e9e60957f.png  
+
+## 4. Puma Suede & Classic Series  
+- Puma Suede Classic - https://supersports.com.vn/cdn/shop/files/39520502-3_1024x1024.jpg?v=1714986894  
+- Puma Basket Classic - https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQzZtE0bLWPOy8WkXryUZy-Anhdcg99pICzVg&s  
+
+## 5. Puma Thunder Series  
+- Puma Thunder Spectra - https://cdn-images.farfetch-contents.com/12/96/10/00/12961000_13556762_600.jpg  
+
+## 6. Puma Future Rider  
+- Puma Future Rider - https://authentic-shoes.com/wp-content/uploads/2023/04/374038-08-2_fed9f70ff66f424682174056ad998b19.png  
+
+## 7. Puma Ignite & Running Shoes  
+- Puma Ignite Limitless - https://images.stockx.com/images/Puma-Ignite-Limitless-Staple-Black.png?fit=fill&bg=FFFFFF&w=700&h=500&  
+- Puma UltraRide - https://rukminim2.flixcart.com/image/850/1000/xif0q/shoe/k/n/f/-original-imah5vj8fxegjytv.jpeg?q=90&crop=false  
+- Puma Deviate Nitro - https://www.jordan1.vn/wp-content/uploads/2023/09/376807_13.png.png  
+
+## 8. Puma Ralph Sampson & Clyde Series  
+- Puma Ralph Sampson Lo - https://down-vn.img.susercontent.com/file/vn-11134201-7r98o-lrckrb4cahgr66  
+- Puma Clyde Hardwood - https://www.jordan1.vn/wp-content/uploads/2023/09/194454_01.png_bd8a6545b34c4aa59549ec7ffa36d888-300x300.png  
+
+## 9. Puma Disc & Training Shoes  
+- Puma Disc Blaze - https://authentic-shoes.com/wp-content/uploads/2024/06/393182-01-2.png  
+- Puma Fuse - https://m.media-amazon.com/images/I/81HwnmFzOuL.jpg  
+
 
 # Danh Sách Giày Adidas
 
