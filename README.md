@@ -68,34 +68,34 @@
 - Puma Fuse - https://m.media-amazon.com/images/I/81HwnmFzOuL.jpg  
 
 
-# Danh Sách Giày Adidas
+# Danh sách giày Adidas
 
-## Adidas Yeezy
-- Adidas Yeezy 350 V2
-- Adidas Yeezy 700
-- Adidas Yeezy 750
+## Adidas Yeezy  
+- Adidas Yeezy 350 V2 - https://cdn-images.farfetch-contents.com/17/25/38/87/17253887_35488785_600.jpg  
+- Adidas Yeezy 700 - https://cdn-images.farfetch-contents.com/14/90/49/25/14904925_24494513_600.jpg  
+- Adidas Yeezy 750 - https://cdn-images.farfetch-contents.com/14/08/59/73/14085973_21919554_600.jpg  
 
-## Adidas Ultraboost
-- Ultraboost 1.0
-- Ultraboost 5.0
-- Ultraboost 21
+## Adidas Ultraboost  
+- Ultraboost 1.0 - https://assets.adidas.com/images/h_840,f_auto,q_auto,fl_lossy,c_fill,g_auto/bad84b99019d4386a67cd03ecc51c0a4_9366/Giay_Ultraboost_1.0_DJen_HQ4201_HM1.jpg  
+- Ultraboost 5.0 - https://assets.adidas.com/images/h_840,f_auto,q_auto,fl_lossy,c_fill,g_auto/73f271fa2fb24c4cbd2ce0063da51a5a_9366/Giay_Ultraboost_5_DJen_ID8812_HM1.jpg  
+- Ultraboost 21 - https://cdn-images.farfetch-contents.com/18/65/98/95/18659895_40510173_600.jpg  
 
-## Adidas NMD
-- NMD_G1
-- NMD_R1
+## Adidas NMD  
+- NMD_G1 - https://assets.adidas.com/images/h_840,f_auto,q_auto,fl_lossy,c_fill,g_auto/c242929fff3b4782a6389f6e78a15776_9366/NMD_G1_Shoes_White_IE4557_01_00_standard.jpg  
+- NMD_R1 - https://cdn-images.farfetch-contents.com/11/97/80/57/11978057_9246784_600.jpg  
 
-## Adidas Stan Smith
-- Adidas Stan Smith White Green
-- Adidas Stan Smith Cloud White
+## Adidas Stan Smith  
+- Adidas Stan Smith White Green - https://assets.adidas.com/images/h_840,f_auto,q_auto,fl_lossy,c_fill,g_auto/68ae7ea7849b43eca70aac1e00f5146d_9366/Giay_Stan_Smith_trang_FX5502_01_standard.jpg  
+- Adidas Stan Smith Cloud White - https://assets.adidas.com/images/h_840,f_auto,q_auto,fl_lossy,c_fill,g_auto/b810b829e9b742378b88c42047781ef4_9366/Stan_Smith_CS_Shoes_White_IG1296_01_standard.jpg  
 
-## Adidas Alphabounce
-- Alpha edge + shoes
-- Alphacomfy shoes
-- Alphaboost V1 shoes
+## Adidas Alphabounce  
+- Alpha edge + shoes - https://assets.adidas.com/images/w_600,f_auto,q_auto/3f596e2e2f834b00af4cb95e2d79c322_9366/AlphaEdge_Shoes_White_IF7291_01_standard.jpg  
+- Alphacomfy shoes - https://assets.adidas.com/images/w_600,f_auto,q_auto/d0749aa642b642568cf2afc500d657f4_9366/Alphacomfy_Shoes_Black_ID0352_01_standard.jpg  
+- Alphaboost V1 shoes - https://assets.adidas.com/images/h_840,f_auto,q_auto,fl_lossy,c_fill,g_auto/b57bca11296b4c249c33af3500b5b5dd_9366/Alphaboost_V1_Shoes_White_HP2759_01_standard.jpg  
 
-## Adidas Prophere
-- Adidas Prophere Triple White
-- Adidas Prophere Onix
+## Adidas Prophere  
+- Adidas Prophere Triple White - https://bizweb.dktcdn.net/thumb/grande/100/413/335/products/duyet-db2705-1.jpg?v=1612395542347  
+- Adidas Prophere Onix - https://www.jordan1.vn/wp-content/uploads/2023/09/removal.ai__tmp-63453231dc2d4_0f1a2afb1cd5490293e06c8e30baee62.png  
 
 
 
